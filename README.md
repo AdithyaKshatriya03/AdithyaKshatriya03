@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a BCA student with a strong interest in programming and technology.<br>Currently studing @ Dr. B. B. Hegde First Grade College Kundapura.<br>Check out my resume - here : ADITHYA-FlowCV-Resume.pdf
+I am a BCA (Bachelor Of Computer Application) student with a strong interest in programming and technology.<br>Currently studying @ Dr. B. B. Hegde First Grade College Kundapura...<br>Check out my resume - here : ADITHVA-FlowCV-Resume.pdf
 
 
 ## 🌐 Socials:
