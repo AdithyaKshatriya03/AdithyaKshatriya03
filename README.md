@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a BCA (Bachelor Of Computer Application) student with a strong interest in programming and technology.<br>Currently studying @ Dr. B. B. Hegde First Grade College Kundapura...<br>Check out my resume - here : https://drive.google.com/file/d/1lO2W-1QuGh5rtEdwP6VyBBXYRPmPktHx/view?usp=sharing
+I am a BCA (Bachelor Of Computer Application) student with a strong interest in programming and technology.<br>Student @ Dr. B. B. Hegde First Grade College Kundapura...<br>Check out my resume - here : https://drive.google.com/file/d/15p2YnRHFcP4aUyDF2Q7Qm_a7Gc00ezwk/view?usp=sharing
 
 
 ## 🌐 Socials:
